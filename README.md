@@ -4,7 +4,7 @@
 
 **Professora:** Suzana Matos França de Oliveira
 
-**Integrantes da dupla:**
+**Alunas::**
 - Katherine Maria Carvalho da Silva
 - Geovanna Duarte Nascimento da Silva
 
